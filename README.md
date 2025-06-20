@@ -31,7 +31,7 @@
 
 ## 📬 Let’s Connect  
 - ✉️ [rojaray2001@gmail.com](mailto:rojaray2001@gmail.com)  
-- 🌐 [LinkedIn Profile](https://www.linkedin.com/in/roja-ray/)) 
+- 🌐 [LinkedIn Profile](https://www.linkedin.com/in/roja-ray/)
 
 ---
 
